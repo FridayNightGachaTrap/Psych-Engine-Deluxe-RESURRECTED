@@ -1,1 +1,3 @@
-# Psych-Engine-Deluxe-RESURRECTED
+# Psych Engine Deluxe: RESURRECTED
+
+IT'S BACK, EVERYONE!
